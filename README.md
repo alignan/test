@@ -1,4 +1,4 @@
 hello w0rld
-Christos is not bad, he's awesome! (no, Christos bad!)
+Christos batman, christos awesome! (no, Christos bad! same same)
 
 ✞Christos feature
